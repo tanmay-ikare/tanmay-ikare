@@ -1,4 +1,4 @@
-[![](https://github.com/tanmay-ikare/tanmay-ikare/blob/main/github.jpg)<!-- If you want the template for my gif, email me! -->
+[![](https://github.com/tanmay-ikare/tanmay-ikare/blob/main/profile.jpg)<!-- If you want the template for my gif, email me! -->
 
 ### Languages
 
